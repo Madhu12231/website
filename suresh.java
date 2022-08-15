@@ -7,9 +7,5 @@ madhu
 
 
 
-
-
-
-
 how r u
 
